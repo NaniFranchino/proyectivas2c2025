@@ -1,0 +1,1 @@
+Creo que el material que producimos lxs estudiantes no debe ser vendido sino compartido. Me opongo a la privatización del conocimiento y te propongo hacer lo mismo. Si querés ayudar a más estudiantes como vos mandá tu resumen a marufranchino@gmail.com
